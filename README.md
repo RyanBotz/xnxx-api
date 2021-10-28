@@ -457,8 +457,8 @@ case 'covid_word':
 
 - [`SAWERIA`](https://saweria.co/kurrtod)
 
-## ```Thnaks To```
+## ```Thanks To```
 
-- [`emak`]()
+- [`Situs Bokep`](https://www.xnxx.com)
 
-- [`bapak`]()
+- [`ridho`](http://github.com/atak676)
