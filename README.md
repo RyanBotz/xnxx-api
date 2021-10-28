@@ -453,7 +453,7 @@ case 'covid_word':
 ```
 </Details>
 
-## ```coffee ☕```
+## ```kaum sultan```
 
 - [`SAWERIA`](https://saweria.co/kurrtod)
 
